@@ -3,8 +3,8 @@
 ### sou o Grégory Misturini Moreira
 ##### - 👋 0la, meu username é: @Gr3guinh0s
 ##### - 👀 Meu email é: Gregorymisturini@gmail.com 
-##### - 🌱 Eu estou aprendendo: games
-##### - 💞️ I’m looking to collaborate on
+##### - 🌱 Eu estou aprendendo: programação de games
+##### - 💞️ Eu gosto muito de jogar principalmente: GTA San Andreas e Pay Day 2
 ##### - 📫 How to reach me
 ##### - 🗿🤙ola sou o Gr3g
 

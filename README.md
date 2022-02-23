@@ -1,6 +1,6 @@
-# EDUTECH
-## COLEGIO ESTADUAL SAGRADA FAMILIA
-### sou o Grégory Misturini Moreira
+# 𝔼𝔻𝕌𝕋𝔼ℂℍ 
+## Cᴏʟᴇɢɪᴏ Esᴛᴀᴅᴜᴀʟ Sᴀɢʀᴀᴅᴀ Fᴀᴍɪʟɪᴀ 
+### SOᑌ O Ｇᖇᕮ́ＧOᖇY ᗰISTᑌᖇIᘉI ᗰOᖇᕮIᖇᗩ
 ##### - 👋 0la, meu username é: @Gr3guinh0s
 ##### - 👀 Meu email é: Gregorymisturini@gmail.com 
 ##### - 🌱 Eu estou aprendendo: programação de games
